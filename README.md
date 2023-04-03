@@ -1,1 +1,0 @@
-# vectordatablog.github.io
